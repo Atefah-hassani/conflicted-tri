@@ -6,6 +6,3 @@ Tri's favourite things:
 * Tri loves eating spinach. 
 * Tri loves vegetables.  
 * Tri is an anime fan.
-
-
-
